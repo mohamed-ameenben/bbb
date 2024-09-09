@@ -1,1 +1,1 @@
-"Quand il me prend dans ses bras\nIl me parle tout bas\nJe vois la vie en rose" 
+"Quand il me prend dans ses bras => Quand je le vois, mon cour s'embrase" 
